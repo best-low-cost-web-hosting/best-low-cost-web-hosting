@@ -1,3 +1,5 @@
+# Best low Cost Web Hosting
+
 Cheap web hosting can offer a variety of features at a lower price than more expensive hosting services: With this type of hosting, you’ll share server resources with other people, and the performance is as good as more expensive hosts. Plus, when you’re getting started with your first website, cheap web hosting makes sense as it keeps your costs down. You can upgrade to managed WordPress hosting or another premium hosting solution in the future if you skip the cheaper option.
 
 
